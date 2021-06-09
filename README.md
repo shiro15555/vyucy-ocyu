@@ -1,2 +1,1 @@
-# vyucy-ocyu
-pv c97-pv79v9-
+https://shiro15555.github.io/website/
